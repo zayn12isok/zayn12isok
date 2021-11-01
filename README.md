@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zayn12isok
 - 👀 I’m interested in making games maths science
 - 🌱 I’m currently learning coding many languages
-- 💞️ I’m looking to collaborate youtube
+- 💞️ I’m looking to collaborate on youtube
 - 📫 How to reach me dm me on discord DabPandabro#8557
 
 <!---
